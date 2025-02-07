@@ -1,1 +1,1 @@
-https://github.com/genyus00/success
+https://github.com/genyus00/success/
